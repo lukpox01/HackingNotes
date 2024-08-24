@@ -1,3 +1,0 @@
-# HackingNotes
-# HackingNotes
-# HackingNotes
